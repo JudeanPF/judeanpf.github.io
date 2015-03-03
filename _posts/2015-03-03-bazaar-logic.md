@@ -1,6 +1,7 @@
 ---
 layout: post
-title: "Bazaar Logic"
+title: Bazaar Logic
+published: true
 ---
 
 ####Bibi had barely finished speaking before the criticism came rolling in:
@@ -35,7 +36,7 @@ There are obviously limits. If you offer a dollar for an intricate, hand-woven P
 
 This is the opening of a bait and switch. You see a beautiful carpet hanging in a bazaar and the seller says he will only part with it in exchange for your first-born son, but if you're interested, he has other carpets (lower quality, no doubt) in his shop if you'll just step inside. Before you know it you're caught up by the smells, vibrant colors, and fast talking merchant, remembering that you promised your wife you'd bring home a carpet no matter what, and instead of negotiating over the carpet you actually wanted, you're haggling over one that you were never interested in to begin with.
 
-The Iranians understand #BizaarLogic very well. It was their threats to walk away from negotiations that made the Obama administration run back to them with concession after concession. It was this threat that made Obama backtrack on his commitment to a nuclear-free Iran. It was this constantly looming threat to walk away, to leave Obama without his must-have deal, that excised any connection to the ballistic missile program and that caused Iranian hegemony to be spun as an asset rather than the greatest act of destabilization in the Middle East since the fall of the Ottoman Empire.
+The Iranians understand #BazaarLogic very well. It was their threats to walk away from negotiations that made the Obama administration run back to them with concession after concession. It was this threat that made Obama backtrack on his commitment to a nuclear-free Iran. It was this constantly looming threat to walk away, to leave Obama without his must-have deal, that excised any connection to the ballistic missile program and that caused Iranian hegemony to be spun as an asset rather than the greatest act of destabilization in the Middle East since the fall of the Ottoman Empire.
 
 ![Bibi in Congress](https://i.imgur.com/DNfOq7H.png)
 
