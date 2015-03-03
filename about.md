@@ -3,28 +3,14 @@ layout: page
 title: About
 ---
 
-<p class="message">
-  Hey there! This page is included as an example. Feel free to customize it for your own use upon downloading. Carry on!
-</p>
+I asked for a media empire, but the Elders of Zion only gave me a Twitter account and a blog.
 
-In the novel, *The Strange Case of Dr. Jeykll and Mr. Hyde*, Mr. Poole is Dr. Jekyll's virtuous and loyal butler. Similarly, Poole is an upstanding and effective butler that helps you build Jekyll themes. It's made by [@mdo](https://twitter.com/mdo).
+We here at the Judean People's Front aim not only to rid our country of the hated Roman Occupation, but to fight against all demonization and delegitimization of Israel through facts and humor. 
 
-There are currently two themes built on Poole:
+<iframe width="422" height="255" src="https://www.youtube.com/embed/gb_qHP7VaZE" frameborder="0" allowfullscreen></iframe>
 
-* [Hyde](http://hyde.getpoole.com)
-* [Lanyon](http://lanyon.getpoole.com)
+>I'm not a Roman mum. I'm a Kike, a Yid, a Heebie, a Hook-nose. I'm Kosher mum. I'm a Red Sea Pedestrian and proud of it!
 
-Learn more and contribute on [GitHub](https://github.com/poole).
+If you don't like it than you can go hang out with [Biggus Dickus](https://www.youtube.com/watch?v=2K8_jgiNqUc) for all I care.
 
-## Setup
-
-Some fun facts about the setup of this project include:
-
-* Built for [Jekyll](http://jekyllrb.com)
-* Developed on GitHub and hosted for free on [GitHub Pages](https://pages.github.com)
-* Coded with [Sublime Text 2](http://sublimetext.com), an amazing code editor
-* Designed and developed while listening to music like [Blood Bros Trilogy](https://soundcloud.com/maddecent/sets/blood-bros-series)
-
-Have questions or suggestions? Feel free to [open an issue on GitHub](https://github.com/poole/issues/new) or [ask me on Twitter](https://twitter.com/mdo).
-
-Thanks for reading!
+And, as always, remember: You are all individuals.
