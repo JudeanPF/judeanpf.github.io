@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bazaar Logic
+title: "#BazaarLogic"
 published: true
 ---
 
