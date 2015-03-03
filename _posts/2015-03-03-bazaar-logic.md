@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "BazaarLogic"
+title: "Bazaar Logic"
 ---
 
 Bibi had barely finished speaking before the criticism came rolling in:
