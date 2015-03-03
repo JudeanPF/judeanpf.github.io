@@ -3,7 +3,7 @@ layout: post
 title: "Bazaar Logic"
 ---
 
-Bibi had barely finished speaking before the criticism came rolling in:
+####Bibi had barely finished speaking before the criticism came rolling in:
 
 "He said nothing new!" Complain those who previously were going crazy at the prospect that Bibi might reveal classified information about the deal.
 
