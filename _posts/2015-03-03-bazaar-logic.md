@@ -47,3 +47,5 @@ Prime Minister Netanyahu was right on the money when he said:
 It's time we let the Iranians know we're done negotiating a bad deal (not any deal, but a bad deal) and if they are interested in real negotiations, they should tell us.
 
 But until then, the sanctions will increase and strengthen as we turn around and walk out of their Bazaar.
+
+_____
