@@ -1,9 +1,8 @@
 ---
 layout: post
 title: "Blue-and-Whitewashing: Using Jews to cover up Anti-Semitism"
+published: true
 ---
-
-###Using Jews to cover up Anti-Semitism
 
 If you're the type of person who is reading this blog (you poor unfortunate soul), chances are you've heard of the term "Jew-washing." This term - coined by Yitzak Santis and Gerald M. Steinberg of [NGO Monitor](http://www.ngo-monitor.org/) in their article [On ‘Jew-Washing’ And BDS: How Jewish anti-Israel activists are gaining influence among Christian groups.](http://www.thejewishweek.com/editorial-opinion/opinion/jew-washing-and-bds) - is the pro-Israel attempt to fight fire with fire.
 
