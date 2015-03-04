@@ -1,6 +1,7 @@
 ---
 layout: post
-title: 'About the Palestinian "Refugees"'
+title: "About the Palestinian "
+published: true
 ---
 
 #####Should Israel let them "come back?"(hint: It already has!) <br /> <br />
@@ -50,7 +51,7 @@ This gets to the real heart of the problem: the only reason Palestinians are ref
 
 **The refusal of the Arab states to resettle the Palestinians by forcing them to remain in refugee camps is only reason why Palestinian refugees exist today.**
 
-Every single war in human history has created refugees, and yet the Israeli War of Independence is the only one that has created perpetual refugees. In 1923 [Greece and Turkey](https://en.wikipedia.org/wiki/Population_exchange_between_Greece_and_Turkey exchanged 1.85 million refugees), all of which were resettled. During WWII, [roughly 2 million Belgians](https://en.wikipedia.org/wiki/Belgian_refugees#Second_World_War) became refugees but were resettled and after the war, [12-14 million Germans](https://en.wikipedia.org/wiki/Flight_and_expulsion_of_Germans_(1944%E2%80%9350) became refugees but were resettled (with some 500-600,000 dying en route). 1946 saw [200,000 Hungarians and an equal number of Slovaks](http://www.globalsecurity.org/military/world/war/forced-population-transfers.htm) cross borders as refugees before being resettled. Between 1944-1953 1.24 million Poles became refugees before settling in the new Poland.
+Every single war in human history has created refugees, and yet the Israeli War of Independence is the only one that has created perpetual refugees. In 1923 [Greece and Turkey](https://en.wikipedia.org/wiki/Population_exchange_between_Greece_and_Turkey exchanged 1.85 million refugees), all of which were resettled. During WWII, [roughly 2 million Belgians](https://en.wikipedia.org/wiki/Belgian_refugees#Second_World_War) became refugees but were resettled and after the war, [12-14 million Germans](https://en.wikipedia.org/wiki/Flight_and_expulsion_of_Germans_(1944%E2%80%9350)) became refugees but were resettled (with some 500-600,000 dying en route). 1946 saw [200,000 Hungarians and an equal number of Slovaks](http://www.globalsecurity.org/military/world/war/forced-population-transfers.htm) cross borders as refugees before being resettled. Between 1944-1953 1.24 million Poles became refugees before settling in the new Poland.
 
 In 1947, **the same year that the First Arab-Israeli War started**, [India and Pakistan were also partitioned](https://en.wikipedia.org/wiki/Partition_of_India#Resettlement_of_refugees_in_India:_1947.E2.80.931957), **creating 14.52 million refugees and roughly 1 million migration related deaths**. At 7.23 million, the number of Muslim refugees created was almost exactly 10x the number of Palestinians created at the exact same time. Yet for some reason (*cough* no Jews to blame *cough*) there was no real outcry over this in the Muslim world, no refugee camps remain, and no international agencies needed to be established to care for them. The Palestinians - and only the Palestinians - are perpetual refugees who refuse and are refused permanent resettlement in direct defiance of the goals of the United Nations High Commissioner of Refugees, but perfectly in line with the rules and goals of their own personal UN aid agency, UNRWA.
 
