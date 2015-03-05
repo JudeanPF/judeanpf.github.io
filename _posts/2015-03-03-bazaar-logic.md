@@ -26,7 +26,7 @@ Nothing could be further from the truth. So what did he really say?
 
 ![Persian Bazaar](https://i.imgur.com/NV0siIR.jpg)
 
-Bibi understands #BazaarLogic.
+While Obama sticks to his bizarre logic of offering concession after concession, Bibi understands #BazaarLogic.
 
 He knows that whether you're in a Persian Bazaar, Arab Souk, or Hebrew Shuk, your strongest weapon is the threat that you might walk away. The second the seller thinks you won't leave his stall without the item in question, you've already lost. You also need to be careful not to overplay this card or you end up like Abbas, who threatens to dismantle the PA every few months so no one takes the threat seriously. But if you haggle and go back and forth but make little progress, that's when you say you're done and start to walk. Before you know it, the seller is chasing you with a much better price.
 
@@ -47,3 +47,5 @@ Prime Minister Netanyahu was right on the money when he said:
 It's time we let the Iranians know we're done negotiating a bad deal (not any deal, but a bad deal) and if they are interested in real negotiations, they should tell us.
 
 But until then, the sanctions will increase and strengthen as we turn around and walk out of their Bazaar.
+
+_____
