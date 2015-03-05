@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "About the Palestinian "
+title: "About the Palestinian 'Refugees "
 published: true
 ---
 
