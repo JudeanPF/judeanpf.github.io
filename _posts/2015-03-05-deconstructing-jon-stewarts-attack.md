@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Deconstructing Jon Stewart's attack on #Netanyahu Speech"
+title: "Deconstructing Jon Stewart's attack on #NetanyahuSpeech"
 ---
 
 If any of you tuned in to the [Daily Show](http://thedailyshow.cc.com/full-episodes/hmp9gu/march-3--2015---sigourney-weaver) last night, I'm sure you weren't surprised by the singular focus on Netanyahu and the incredibly childish way in which Jon Stewart deals with his speech.
@@ -129,3 +129,5 @@ This entire episode was useless as any sort of political commentary, which sadly
 Yet again Israel was falsely flayed in the town square by Jon Stewart who uses his own Jewishness as a shield against critcisim.
 
 What a shanda.
+
+____
