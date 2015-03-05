@@ -83,3 +83,5 @@ The fact of the matter is that both feminists and the LGBT community deserve bet
 Just because someone is named Sarah Miriam Schulman doesn't mean we should sit back and take it while she uses her name to Blue-and-Whitewash anti-Semitism of the worst order. These Blue-and-Whitewashers should be named, shamed, and called what they really are:
 
 ###Traitors and Anti-Semites.
+
+_____
