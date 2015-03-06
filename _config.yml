@@ -10,12 +10,12 @@ relative_permalinks: true
 title:            "The Judean People's Front"
 tagline:          "I asked for a media empire, but the Elders of Zion only gave me a Twitter account and a blog."
 description:      "I asked for a media empire, but the Elders of Zion only gave me a Twitter account and a blog."
-url:              http://hyde.getpoole.com
+url:              http://judeanpf.com
 baseurl:          /
 
 author:
   name:           'Brian Cohen'
-  url:            https://judeanpf.github.io
+  url:            http://judeanpf.com
 
 paginate:         3
 
