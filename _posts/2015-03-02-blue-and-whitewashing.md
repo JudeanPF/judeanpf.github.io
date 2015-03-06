@@ -18,7 +18,7 @@ So we here at The Judean People's Front decided to help them out and came up wit
 
 #Blue-and-Whitewashing
 
-![Blue-and-Whitewashing](http://i.imgur.com/8GScx9u.jpg)
+![Blue-and-Whitewashing](http://i.imgur.com/6m2Iqw0.jpg)
 
 ###So what is #BlueAndWhitewashing anyway?
 
