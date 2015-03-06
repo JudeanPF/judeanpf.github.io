@@ -18,7 +18,7 @@ So we here at The Judean People's Front decided to help them out and came up wit
 
 #Blue-and-Whitewashing
 
-![Blue-and-Whitewashing](http://i.imgur.com/R2YVOJR.jpg)
+![Blue-and-Whitewashing](http://i.imgur.com/8GScx9u.jpg)
 
 ###So what is #BlueAndWhitewashing anyway?
 
@@ -50,7 +50,7 @@ What's more, she is the Faculty Advisor for Students for Justice in Palestine at
 
 In reality, it should really be called Jewish Voice for Palestine.
 
-![Jewish Voice for Palestine](http://i.imgur.com/hm57JAG.jpg)
+![Jewish Voice for Palestine](http://i.imgur.com/bbcaGQt.jpg)
 
 Despite the constant refrain from Arab anti-Zionists that Semites can't be anti-Semites, we know this is not the case. Just ask [Gilad "Jews control the world" Atzmon](http://www.ynetnews.com/articles/0,7340,L-4106265,00.html), who, as it turns out, wrote a [mostly fawning review](http://www.gilad.co.uk/writings/israelpalestine-and-the-queer-international-a-book-review-by.html) of one of her books. While Schulman is more careful not to specifically target Jews without using the [dog-whistle](https://en.wikipedia.org/wiki/Dog-whistle_politics) of Zionism, you don't have to dig very deep to see her hatred not just of Israel but of the Jewish people and her acceptance of classic anti-Semitic conspiracy theories. Not only that, but she herself talks about her own transformation from a “Jewish, lesbian New Yorker” into a “Cosmopolitan queer and avid BDS advocate,” that is to say how she stopped being a closed-minded Jew and opened herself up to the idea of global solidarity with hatred of Israel at its core.
 
