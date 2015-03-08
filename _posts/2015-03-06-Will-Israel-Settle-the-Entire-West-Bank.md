@@ -23,7 +23,7 @@ Instead of going to the Israeli government or the settler groups themselves, whi
 
 Now you're probably thinking, that can't be right! They must take up more land than that or else they wouldn't make headlines like they do. Well, let's now go to the Palestinians and see what they have to say.
 
-[According to Saeb Erekat](http://www.haaretz.com/news/diplomacy-defense/erekat-olmert-offered-palestinians-territorial-equivalent-of-west-bank-1.393484), the chief Palestinian "peace" negotiator and Abbas confidant, said in 2011 that the built-up areas of the settlements take up... **1.1% of West Bank!**
+[According to Saeb Erekat](http://www.haaretz.com/news/diplomacy-defense/erekat-olmert-offered-palestinians-territorial-equivalent-of-west-bank-1.393484), the chief Palestinian "peace" negotiator and Abbas confidant, said in 2011 that the built-up areas of the settlements take up... **1.1% of the West Bank!**
 
 This news is probably very jarring to you. Could it be that the settlements take up just over a single percent of the West Bank? Surely the municipal boundaries take up more land and that is the cause of the global outrage.
 
