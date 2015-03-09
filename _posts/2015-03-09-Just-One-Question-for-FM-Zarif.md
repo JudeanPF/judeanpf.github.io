@@ -47,7 +47,7 @@ Of course Zarif can't discuss Cyrus the Great's central role in allowing the Jew
 
 ###Which is it?
 
-Iran can't have its cake and eat it too: either it recognizes that Cyrus allowed the Jews to return to Israel and rebuild the Temple, thereby recognizing the right of the Jews to the land, or it does not. It cannot celebrate the King for liberating the Jews and ignore what this entailed.
+Iran can't have its Jews and kill them too: either it recognizes that Cyrus allowed the Jews to return to Israel and rebuild the Temple, thereby recognizing the right of the Jews to the land, or it does not. It cannot celebrate the King for liberating the Jews and ignore what this entailed.
 
 It would just be nice if one of the many journalists interviewing him actually called him on it.
 
