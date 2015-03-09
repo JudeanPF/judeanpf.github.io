@@ -9,6 +9,8 @@ After Prime Minister Netanyahu's [masterful speech to Congress](http://www.washi
 
 Since Zarif has had so much experience duping American nuclear negotiators, the fact that he is able to do so easily to a reporter should be of no surprise.
 
+<IMG SRC="https://i.imgur.com/FRx9RCv.jpg" ALT="some text" WIDTH=700 HEIGHT=500>
+
 But still, Curry does of decent job holding Zarif's feet to the fire, asking him specifically "Netanyahu strongly suggested that Iran has genocidal ambitions against the Jewish people, saying, "Iran's regime is not merely a Jewish problem, any more than the Nazis were a Jewish problem." What is your response to that?"
 
 In order to counter this question that deserves a real answer from the Iranian negotiating team, Zarif digs deep into history saying:
