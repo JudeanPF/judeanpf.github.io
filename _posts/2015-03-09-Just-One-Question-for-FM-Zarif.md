@@ -21,7 +21,7 @@ I applaud the Foreign Minister's verbal and historical acrobatics, but it would 
 
 ###Ignoring Queen Esther
 
-[Vox.com](](http://www.vox.com/2015/3/5/8157079/zarif-netanyahu-esther)) called Zarif out for misrepresenting the story of Queen Esther. Yes it was King Achashverosh/Xerxes who "saved the Jews from a Prime Minister," but it was the same king who had previously signed off on their annihilation and only countered the decree after the intervention of his Jewish bride.
+[Vox.com](http://www.vox.com/2015/3/5/8157079/zarif-netanyahu-esther) called Zarif out for misrepresenting the story of Queen Esther. Yes it was King Achashverosh/Xerxes who "saved the Jews from a Prime Minister," but it was the same king who had previously signed off on their annihilation and only countered the decree after the intervention of his Jewish bride.
 
 ###Did the Holocaust Happen or Not?
 
