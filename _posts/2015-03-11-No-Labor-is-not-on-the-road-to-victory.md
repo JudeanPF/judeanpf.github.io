@@ -60,7 +60,7 @@ But let's say that the election is even closer, Labor gets more seats than Likud
 
 Upsets are always possible and roughly 7% of voters are still undecided (14% if you include those who are deciding between 2 parties on the same political spectrum), so I've always been wary of predictions. But it is hard to look at the data and the trends and not draw the clear conclusions.
 
-
+Is it possible Labor will cobble together a weak coalition and eek out a victory? Sure. It just isn't very likely
 
 Now let's just hope Netanyahu can easily and quickly put together a new coalition and get back to work. So remember to vote on Tuesday.
 
