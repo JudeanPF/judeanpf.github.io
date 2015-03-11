@@ -25,7 +25,7 @@ I applaud the Foreign Minister's verbal and historical acrobatics, but it would 
 
 ###Did the Holocaust Happen or Not?
 
-Zarif's mention of Iranian efforts to save Jews during WWII was no doubt a reference to [Abdol Hossein Sardari]https://en.wikipedia.org/wiki/Abdol_Hossein_Sardari) who did in fact issue hundreds of Iranian passports to Jews (both Iranian and non-Iranian) and is often called the "Schindler of Iran." Given the Islamic Republic's history of Holocaust Denial, it is interesting that Zarif would mention this at all. But of course he doesn't talk about the fact that after the Islamic Revolution, instead of supporting such a worthy humanitarian, the new Islamist government rescinded his pension and confiscated his property. It must have been this "generous" policy towards those who worked to save Jews that convinced more than 90% of Iran's Jews they would be better off emigrating.
+Zarif's mention of Iranian efforts to save Jews during WWII was no doubt a reference to [Abdol Hossein Sardari](https://en.wikipedia.org/wiki/Abdol_Hossein_Sardari) who did in fact issue hundreds of Iranian passports to Jews (both Iranian and non-Iranian) and is often called the "Schindler of Iran." Given the Islamic Republic's history of Holocaust Denial, it is interesting that Zarif would mention this at all. But of course he doesn't talk about the fact that after the Islamic Revolution, instead of supporting such a worthy humanitarian, the new Islamist government rescinded his pension and confiscated his property. It must have been this "generous" policy towards those who worked to save Jews that convinced more than 90% of Iran's Jews they would be better off emigrating.
 
 ###Iranian Jews
 
