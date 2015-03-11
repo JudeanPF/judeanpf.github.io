@@ -16,7 +16,7 @@ So, while Jew-washing may technically fit the mold, it really sounds like it bel
 
 So we here at The Judean People's Front decided to help them out and came up with a term that we feel works much better:
 
-#Blue-and-Whitewashing
+#[Blue-and-Whitewashing](http://www.urbandictionary.com/define.php?term=Blue-and-Whitewash)
 
 ![Blue-and-Whitewashing](http://i.imgur.com/6m2Iqw0.jpg)
 
@@ -84,4 +84,6 @@ Just because someone is named Sarah Miriam Schulman doesn't mean we should sit b
 
 ###Traitors and Anti-Semites.
 
+
+(Be sure to upvote the term on [Urban Dictionary](http://www.urbandictionary.com/define.php?term=Blue-and-Whitewash))
 _____
