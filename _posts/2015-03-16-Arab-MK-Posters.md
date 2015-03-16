@@ -9,26 +9,26 @@ But given that visuals are often more effective than well thought out arguments 
 
 Please help us make these spread!
 
-Ayman Odeh
+###Ayman Odeh
 
 ![Odeh](https://i.imgur.com/UhbfHit.jpg)
 
-Masud Ganaim
+###Masud Ganaim
 
 ![Ganaim](https://i.imgur.com/W4Pkqax.jpg)
 
-Jamal Zahalaka
+###Jamal Zahalaka
 
 ![Zahalaka](https://i.imgur.com/d1MAv9z.jpg)
 
-Ahmad Tibi
+###Ahmad Tibi
 
 ![Tibi](https://i.imgur.com/LBXbiim.jpg)
 
-Hanin Zoabi
+###Hanin Zoabi
 
 ![Zoabi](https://i.imgur.com/65wkgzp.jpg)
 
-Raja Zaatra
+###Raja Zaatra
 
 ![Zaatra](https://i.imgur.com/tc7MbPo.jpg)
