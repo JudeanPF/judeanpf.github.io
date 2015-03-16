@@ -15,6 +15,8 @@ The reason why Odeh will not lead the opposition is not because he is Arab, thou
 
 The problem has always been that while Arabs do often vote for and are elected as members of mainstream Zionist parties, parties catering specifically to the Arab sector have always been non or anti-Zionist, run by communists, Islamists, and/or traitors who openly side with the enemy.
 
+(For JPF's posters about the Arab MKs [click here](http://judeanpf.com/2015/03/16/Arab-MK-Posters/))
+
 ###The Arab Parties
 
 Let's take a quick look at the ideologies of these parties from Wikipedia:
