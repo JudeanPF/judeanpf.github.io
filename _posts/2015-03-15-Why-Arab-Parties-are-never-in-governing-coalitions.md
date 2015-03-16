@@ -92,3 +92,5 @@ But, if the law exists, it must be applied equally across the board. If Jewish e
 Until Israel’s Arabs get a party that is more interested in bettering the lives of its community than it is in extremism, there will never be an Arab party in the coalition. This is both detrimental to the Arabs themselves who will lack true leadership and to the rest of the State of Israel that will continue to lose the potential of 20% of its citizens.
 
 We would be wise to remember the words of [Ze’ev Jabotinsky](https://en.wikipedia.org/wiki/Ze%27ev_Jabotinsky#Integrated_state_with_Arabs) who said, "in every cabinet where the prime minister is a Jew, the vice-premiership shall be offered to an Arab and vice versa." But as long as the only Arabs in government are extremists, communists, and Islamists, this vision will go unrealized and we all shall suffer the consequences.
+
+___
