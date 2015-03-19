@@ -7,7 +7,7 @@ Now that Netanyahu's victory has been accepted (grudgingly) as fact by the media
 
 "[An Israeli Election Turns Ugly](http://www.nytimes.com/2015/03/18/opinion/an-israeli-election-turns-ugly.html?hp&action=click&pgtype=Homepage&module=c-column-top-span-region&region=c-column-top-span-region&WT.nav=c-column-top-span-region)" declared the NYTimes editorial board:
 
-> Prime Minister Benjamin Netanyahu’s outright [rejection of a Palestinian state](http://www.nytimes.com/2015/03/17/world/middleeast/benjamin-netanyahu-campaign-settlement.html) and his **racist rant [against Israeli Arab voters]**(http://www.nytimes.com/2015/03/18/world/middleeast/netanyahu-israel-elections-arabs.html) on Tuesday showed that he has forfeited any claim to representing all Israelis.
+> Prime Minister Benjamin Netanyahu’s outright [rejection of a Palestinian state](http://www.nytimes.com/2015/03/17/world/middleeast/benjamin-netanyahu-campaign-settlement.html) and his **racist rant [against Israeli Arab voters](http://www.nytimes.com/2015/03/18/world/middleeast/netanyahu-israel-elections-arabs.html)** on Tuesday showed that he has forfeited any claim to representing all Israelis.
 
 The professional self-flagellator, Bradley Burston of Haaretz kept it going with "[As an Israeli, I am ashamed that my prime minister is a racist](http://www.haaretz.com/blogs/a-special-place-in-hell/.premium-1.647564)":
 
