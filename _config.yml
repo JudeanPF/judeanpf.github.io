@@ -24,3 +24,19 @@ version:          2.1.1
 
 github:
   repo:           https://github.com/JudeanPF/judeanpf.github.io
+
+exclude: 		  JudeanPF-a880b2cba1ec.json
+
+# https://github.com/developmentseed/jekyll-ga#readme
+
+jekyll_ga:
+  service_account_email:    "1051632313523-rj0ncua2bu0fqp340prn3i30gpe3rp71@developer.gserviceaccount.com"
+  key_file: privatekey.p12  # service account private key file
+  key_secret: notasecret    # service account private key's password
+  profileID: ga:####        # profile ID
+  start: last month         # Beginning of report
+  end: now                  # End of report
+  metric: ga:pageviews      # Metric code
+  segment:                  # optional
+  filters:                  # optional
+  sort: true                # Sort posts by this metric
