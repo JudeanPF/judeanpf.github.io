@@ -3,7 +3,7 @@ layout: post
 title: "The Many Myths of Jerusalem: Part 2"
 ---
 
-Part two of of our multipart series on **The Many Myths of Jerusalem**
+Part two of our multipart series on **The Many Myths of Jerusalem**
 
 #Myth Number 2: East Jerusalem
 
