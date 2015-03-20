@@ -2,6 +2,7 @@
 layout: page
 title: About
 published: true
+permalink: "about.html"
 ---
 
 I asked for a media empire, but the Elders of Zion only gave me a [Twitter account](https://twitter.com/JudeanPF) and a blog.
