@@ -9,5 +9,5 @@ Lorem ipsum dolor sit amet, consectetur adipisicing elit. Eaque, officiis expedi
 
 ## Myth Posts
 
-* Myth 1: [Jerusalem Must be Internationalized](http://judeanpf.com/2015/03/10/Jerusalem-Myth-01/)
-* Myth 2: [Where does the myth of "East" Jerusalem come from?](http://judeanpf.com/2015/03/20/Jerusalem-Myth-02/)
+* Myth 1: [Jerusalem Must be Internationalized]({% post_url 2015-03-10-Jerusalem-Myth-01 %})
+* Myth 2: [Where does the myth of "East" Jerusalem come from?]({% post_url 2015-03-20-Jerusalem-Myth-02 %})
