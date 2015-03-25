@@ -27,6 +27,10 @@ This sounds bad to Western ears who aren't used to mainstream leaders referring 
 
 Some have asked, "what if Odeh complained that Jews were coming out to vote in droves?" Well, this analogy doesn't really work because Israeli Jews are divided among various, sometimes-fluid groups. When [Rabbi Auerbach effectively called for a boycott of the elections](http://www.timesofisrael.com/prominent-rabbi-skips-vote-boding-ill-for-ultra-orthodox-parties/) there was much discussion of how this would effect the Haredi vote... and the New York Times certainly didn't label these discussions anti-Haredi or anti-Semitic. It was understandable and reasonable to discuss how the Haredi sector was going to vote. So why should it be any different when discussing the Arab vote? (Granted, the Arab sector is also sub-divided into many groups - Bedouin, Islamist, communist, Palestinian Nationalist, Christian - but the Joint List shows that most of these groups will abandon or suppress their differeneces in order to rally around anti-Zionism.)
 
+Granted, Netanyahu is the Prime Minister and should know better. Even if this is what he meant and most people understand that, saying a minority population is going out in droves to vote, no matter the legitimate concerns, is irresponsible. Thankfully, [he has since apologized](www.timesofisrael.com/netanyahu-apologizes-to-arabs-for-voter-turnout-remark/) and hopefully will be more careful in the future.
+
+###Joint List Extremism
+
 Another thing completely overlooked is the make-up of the Joint Arab List, which sounds all nice and cozy. Again from the NYTimes:
 
 >There were signs that Arab Israelis were turning out in somewhat higher numbers, apparently to vote for the Joint Arab List, a coalition of four small parties.
