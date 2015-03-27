@@ -11,7 +11,7 @@ As faithful, pro-Israel tweeters and bloggers, we at the Judean People's Front a
 
 ![Rosanne](http://www.israellycool.com/wordpress/wp-content/uploads/Roseanne_Barr.jpg)
 
-You recently took this battle off twitter with a special guest post on the pro-Israel blog *[Israellycool.com](www.israellycool.com)*. In *[In Praise Of Israeli Democracy](http://www.israellycool.com/2015/03/25/special-guest-post-roseanne-barr-in-praise-of-israeli-democracy/)* you write not only a vigorgous defence of the State of Israel, but of Democracy in general and begin with:
+You recently took this battle off twitter with a special guest post on the pro-Israel blog *[Israellycool.com](www.israellycool.com)*. In *[In Praise Of Israeli Democracy](http://www.israellycool.com/2015/03/25/special-guest-post-roseanne-barr-in-praise-of-israeli-democracy/)* you write not only a vigorous defense of the State of Israel, but of Democracy in general and begin with:
 
 >Israel right now, in my opinion has the most vibrant democracy in the world, and feel free to correct me (minus hate speech) if you feel I am wrong.
 
