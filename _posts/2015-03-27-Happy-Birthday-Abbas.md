@@ -15,6 +15,6 @@ While Israel's democracy is [questioned by the AP](https://www.commentarymagazin
 
 So from all of us here at the Judean People's Front, to our benevolent, peaceful, and moderate partner - who completely accepts the two-state solution despite personally turning down offer after offer, and who continues to reject the idea of a Jewish State and insist on the "Right of Return" for millions of Palestinians who never lived here to Israel - on the occasion of your 80th birthday, we would like to wish you a very heartfelt:
 
-كل عام وأنت بألف بخير
+##كل عام وأنت بألف بخير
 
 ____
