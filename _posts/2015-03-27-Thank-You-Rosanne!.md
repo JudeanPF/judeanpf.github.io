@@ -53,4 +53,8 @@ We salute you with our eternal battle cry:
 
 ##Am Yisrael Chai!
 
+##UPDATE:
+
+The other night, the Judean People's Front was in a twitter thread with a hater attacking Rosanne and she ended up blocking everyone on the thread, including us! Please tweet at her to unblock [our handle](https://twitter.com/JudeanPF) so we can keep fighting for Israel together.
+
 ____
