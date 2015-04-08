@@ -11,3 +11,4 @@ Over the years, many myths about the city of Jerusalem have come to be viewed as
 
 * Myth 1: [Jerusalem Must be Internationalized]({% post_url 2015-03-10-Jerusalem-Myth-01 %})
 * Myth 2: ["East" Jerusalem]({% post_url 2015-03-20-Jerusalem-Myth-02 %})
+* Myth 3: [Jerusalem Gives Citizenship or Residency Based on Religion/Ethnicity]({% post_url 2015-04-08-Jerusalem-Myth-03 %})
