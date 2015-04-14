@@ -91,6 +91,12 @@ However, if the enemies of Israel continue to teach their children that the Jewi
 
 Even those who are naive enough to believe Abbas might eventually come around to making a worthless declaration saying Israel is the Jewish State would never think he could make the above statement. That is because this "moderate, peace partner" is neither and will never accept peace with Israel as a Jewish State or otherwise.
 
-Israel doesn't want another meaningless piece of paper and it doesn't want to raise unrealistic demands to scuttle peace talks. All Israel wants is real peace and that is impossible without recognition, normalization, and reeducation.
+As Ruth Wisse, Professor of Yiddish Literature at Harvard University, said in *[The J Street Challenge](http://thejstreetchallenge.com/watch-online-for-free/)*:
+
+>There is no such thing as an Arab-Israel conflict. There is an Arab war against Israel. There is an Arab war against the Jewish people's right to a state.
+
+This is the what the entire conflict is about. It isn't about occupation - there was war and terrorism before 1967. It isn't about racism - there is racism in every country in the world. It isn't about human rights - Israel has one of the best records on human rights in the world and the very best in the Middle East.
+
+It is about the complete refusal of the Arab world to recognize the right of the Jewish people to have a state of their own within any borders. Unless this changes there can be no peace and that is why it is so important for Israel's enemies to recognize it as the Jewish State.
 
 ____
