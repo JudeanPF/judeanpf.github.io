@@ -23,42 +23,45 @@ And we weren't disappointed (well, obviously we were, but you know what we mean)
 
 
 
-In honor of notorious [Blue-and-Whitewasher](http://judeanpf.com/2015/03/02/blue-and-whitewashing/) Norman Finkelstein, the Judean People's Front brings you:
+In honor of notorious [Blue-and-Whitewasher](http://judeanpf.com/2015/03/02/blue-and-whitewashing/) Norman Finkelstein, the Judean People's Front, in collaboration with [Dr. Mike Harris](https://twitter.com/DrMikeH49), bring you the song Palestinians are really singing:
 
 
 
-##Shield By Me - 
-#####As sung by a Hamas rocketeer to his child human shield
+##Shield By Me - As sung by a Hamas rocketeer to his child human shield
+
+
 
 ![shield](https://i.imgur.com/M4504tj.jpg)
 
 <br>
 
-When the war has come
+When the time has come
 
-And the future is dark
+And the Jews are near
 
 And the rockets are the only lights we'll see
 
-No, I won't be afraid
+No, kids don't be afraid
 
-Though you will, be afraid
+Nor will I be afraid
 
-Just as long as you shield, shield by me
+Just as long as my shield, stands by me
 
 <br>
+
+
 
 So child, child
 
-Shield by me, oh shield by me
+Shield me, oh stand by me
 
-Oh shield, shield by me
+Oh shield, stand by me
 
-Shield by me
+Stand by me
 
 <br>
 
-If the sky, that we look upon
+If the school, that we overtook
 
 Should tumble and fall
 
@@ -68,35 +71,44 @@ I won't cry, I won't cry
 
 No, I won't shed a tear
 
-Just as long as you shield, shield by me
+Just as long as you get me, on TV
 
 <br>
+
+
 
 And child, child
 
-Shield by me, oh shield by me
+Shield me, oh stand by me
 
-Oh shield, shield by me
+Oh shield, stand by me
 
-Shield by me
+Stand by me
 
 <br>
+
+
 
 So child, child
 
-Shield by me, oh shield by me
+Shield me, oh stand by me
 
-Oh shield now, shield by me, oh shield by me
+Oh shield now, stand by me, oh stand by me
 
-Whenever I'm in trouble won't you shield by me
+Whenever I'm in trouble won't you shield me
 
-Oh shield by me, oh won't you shield me now, shield
+Oh shield me, oh won't you shield me now, shield
 
-Shield by me
+Shield me
 
-Shield by me
+Stand by me
 
-<br>
+
+
+
+
 ![protection](https://i.imgur.com/i028CF9.jpg)
 
-___
+
+
+_____
