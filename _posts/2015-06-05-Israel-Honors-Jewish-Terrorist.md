@@ -11,7 +11,7 @@ On 28 May 2015, Israeli President Reuven Rivlin awarded Israel's highest civilia
 
 >Paragraph 2: In appreciation for his pioneering role in the struggle, his sacrifice for his homeland and his people, and its revolution, and his willingness to give all of himself to the cause of Zionism..
 
-Did you miss this story? Of course you did because it never happened! Israel did not celebrate Ben David's terrorism but rather condemned it at every level both political and civilian. He was quickly tracked down by the Israeli police who arrested him and he was then put on trial for his brutal crime.
+Did you miss this story? **Of course you did because it never happened!** Israel did not celebrate Ben David's terrorism but rather condemned it at every level both political and civilian. He was quickly tracked down by the Israeli police who arrested him and he was then put on trial for his brutal crime.
 
 So why is the JPF reporting this? Because the exact same thing happened in the Palestinian Authority!
 
