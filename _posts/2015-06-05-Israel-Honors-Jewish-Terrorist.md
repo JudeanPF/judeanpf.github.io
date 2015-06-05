@@ -48,6 +48,6 @@ This story was not picked up by any mainstream press because, hey, why would it?
 
 Apparently an abstract discussion of a theoretical occurrence within the bounds of religious law is more newsworthy than the President of an aspiring state, roundly celebrated as a moderate and a peace activist, publicly celebrating an unrepentant terrorist.
 
-Don't worry, the JPF has updated [Barnwai's Wikipedia entry](https://en.wikipedia.org/wiki/Fatima_Bernawi#Attempted_bombing_and_arrest) (closely following their balance guidelines) so the whole world will know how much Abbas appreciates her peaceful activities.
+Don't worry, the JPF has updated [Barnawi's Wikipedia entry](https://en.wikipedia.org/wiki/Fatima_Bernawi#Attempted_bombing_and_arrest) (closely following their balance guidelines) so the whole world will know how much Abbas appreciates her peaceful activities.
 
 ___
