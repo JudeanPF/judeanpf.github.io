@@ -1,6 +1,6 @@
 ---
 layout: page
-title: The Many Myths of Jerusalem Series
+title: The Many Myths of Jerusalem
 published: true
 permalink: "mythsofjerusalem.html"
 ---
