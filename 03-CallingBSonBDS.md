@@ -20,3 +20,5 @@ While it is from a group called the "US Campaign to End the Israeli Occupation" 
 In order to properly combat this threat, pro-Israel students need to know what they are up against and how to respond to each and every lie, distortion and misrepresentation this Handbook is teaching. To that end, the Judean People's Front has decided to take this apart page by page and lie by lie.
 
 Below you will find a constantly growing list of articles not only debunking the lies contained in the BDS Handbook, but important information in the fight against BDS and specific actions that can be taken to counter BDS.
+
+* Part 1: [BDS Handbook: Forward]({% post_url 2015-06-09-BDS-Handbook-Forward %})
