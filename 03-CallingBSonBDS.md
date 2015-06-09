@@ -13,7 +13,7 @@ One doesn't have to be a close follower of the Israeli-Arab conflict in order to
 
 BDS "successes" on university campuses in the West are not isolated incidents, but part of a global campaign aimed at destroying the Jewish State. Most of the resolutions are written by professional anti-Israel "activists" and just slightly altered to fit the local school. What's more the [**BDS movement has provided a guidebook**](http://www.endtheoccupation.org/downloads/divestguide.pdf) for campus Israel-haters to use in their fight against the Jewish State.
 
-<center><IMG SRC="https://i.imgur.com/RPUfgQN.jpg" ALT="Divest Now Handbook" WIDTH=300 HEIGHT=388></center>
+<center><IMG SRC="http://i.imgur.com/nGRUthm.jpg" ALT="Divest Now Handbook" WIDTH=300 HEIGHT=388></center>
 
 While it is from a group called the "US Campaign to End the Israeli Occupation" the occupation they are talking about is the one that began in 1948 (i.e. all of Israel) and the Handbook itself is based almost entirely on painting Israel as an apartheid state.
 
