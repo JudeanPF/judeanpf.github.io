@@ -23,3 +23,4 @@ Below you will find a constantly growing list of articles not only debunking the
 
 * Part 1: [BDS Handbook: Forward]({% post_url 2015-06-09-BDS-Handbook-Forward %})
 * Part 2: [BDS Handbook: Israeli Apartheid]({% post_url 2015-06-10-Israeli-Apartheid %})
+* Part 3: [Genocide Libel]({% post_url 2015-06-11-Genocide-Libel %})
