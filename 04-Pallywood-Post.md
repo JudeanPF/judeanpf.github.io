@@ -1,0 +1,108 @@
+---
+layout: page
+title: The Pallywood Post
+published: true
+permalink: "PallywoodPost.html"
+---
+
+Welcome to the Pallywood Post! This section is dedicated to exposing the "art" of Palestinian media manipulation.
+
+We are currently compiling a list of all the best articles from numerous pro-Israel blogs, so they can all be easily accessed from a single place. Submissions are greatly appreciated and can be sent to us on Twitter ([@JudeanPF](https://twitter.com/JudeanPF)).
+
+As we progress, we will add quick reference images clearly showing how some of the most viral anti-Israel images that have been manipulated.
+
+
+##[Elder of Ziyon](http://elderofziyon.blogspot.com/):
+
+* [The Pallywood bulldozer (update)](http://elderofziyon.blogspot.com/2015/03/the-pallywood-bulldozer.html#.VXjbtY7BzGc)
+
+* ["Killed" Pallywood girl is alive (update - maybe not)](http://elderofziyon.blogspot.com/2014/08/killed-pallywood-girl-is-alive.html#.VXje347BzGc)
+
+* [Pallywood training in Egypt as "protesters" pose for the cameras](http://elderofziyon.blogspot.com/2013/08/pallywood-training-in-egypt-as.html#.VXjcO47BzGc)
+
+* [Pallywood in BBC report](http://elderofziyon.blogspot.com/2012/11/pallywood-in-bbc-report.html#.VXjcf47BzGc)
+
+* [Pallywood in Hebron: Elderly Arab woman cries on cue for cameras (UPDATE)](http://elderofziyon.blogspot.com/2015/01/pallywood-in-hebron-elderly-arab-woman.html#.VXjcoY7BzGc)
+
+* [BBC exposes Pallywood lies in #GazaUnderAttack Twitter hashtag](http://elderofziyon.blogspot.com/2014/07/bbc-exposes-pallywood-lies-in.html#.VXjc947BzGc)
+
+* [HuffPo features Pallywood TWICE in photo essay on human challenges](http://elderofziyon.blogspot.com/2013/10/huffpo-features-pallywood-twice-in.html#.VXjdW47BzGc)
+
+* [Eleven minutes of pure Pallywood](http://elderofziyon.blogspot.com/2013/02/eleven-minutes-of-pure-pallywood.html#.VXjeS47BzGc)
+
+* [Lying Silwan photograph wins award](http://elderofziyon.blogspot.com/2011/12/lying-silwan-photograph-wins-award.html#.VXjhuo7BzGc)
+
+
+##[Five Minutes for Israel](http://5mfi.com/)
+
+* [International Women’s Pallywood](http://5mfi.com/international-womens-pallywood/)
+
+* [Not another doll!](http://5mfi.com/not-another-doll/)
+
+* [Palestinian Photoshoppery](http://5mfi.com/palestinian-photoshoppery/)
+
+
+##[Israellycool](http://www.israellycool.com/):
+
+* [Another Day Another Fake Pallywood Wounded Child](http://www.israellycool.com/2012/11/17/another-day-another-fake-pallywood-wounded-child/)
+
+* [Liars, Liars](http://www.israellycool.com/2012/03/11/liars-liars/)
+
+* [Pallywood Presents: Shirley Temper Starring In Mommy Dearest](http://www.israellycool.com/2014/11/24/pallywood-presents-shirley-temper-starring-in-mommy-dearest/)
+
+* [Pallywood Picture Perfect: The Case Of The “Quran Snatchers”](http://www.israellycool.com/2014/10/16/pallywood-picture-perfect-the-case-of-the-quran-snatchers/)
+
+* [Pallywood Picture Perfect: Viral Photo Of Screaming Israeli Man Not What It Seems (Updated)](http://www.israellycool.com/2014/10/15/pallywood-picture-perfect-viral-photo-of-screaming-israeli-man-not-what-it-seems/)
+
+* [Who Has More Paparazzi? Hollywood or Pallywood?](http://www.israellycool.com/2014/01/09/who-has-more-paparazzi-hollywood-or-pallywood/)
+
+* [Today’s Slice Of Pallywood](http://www.israellycool.com/2013/10/06/todays-slice-of-pallywood/)
+
+* [French Diplomat Marion Castaing, Latest Pallywood Star](http://www.israellycool.com/2013/09/22/french-diplomat-marion-castaing-latest-pallywood-star/)
+
+
+##[Jews Down Under](http://jewsdownunder.com/)
+
+* [“The Israeli Army Killed Palestinian Children For Sport”: Vivid imaginations run rampant](http://jewsdownunder.com/2014/07/04/israeli-army-killed-palestinian-children-sport-vivid-imaginations-run-rampant/)
+
+* [Hitler understood propaganda, so do the Palestinians](http://jewsdownunder.com/2013/09/30/hitler-understood-propaganda-so-do-the-palestinians/)
+
+
+##[Pro-Israel Bay Bloogers](http://proisraelbaybloggers.blogspot.com/):
+
+* [Welcome to Pallywood, Gaza edition](http://proisraelbaybloggers.blogspot.com/2014/07/welcome-to-pallywood-gaza-edition.html)
+
+* [Welcome to Pallywood. The caged children edition](http://proisraelbaybloggers.blogspot.com/2014/11/welcome-to-pallywood-caged-children.html)
+
+* [Welcome to Pallywood. Land Day Edition](http://proisraelbaybloggers.blogspot.com/2014/04/welcome-to-pallywood-land-day-edition.html)
+
+* [The Death of Yousef Shawamrah](http://proisraelbaybloggers.blogspot.com/2014/04/the-death-of-yousef-shawamrah.html)
+
+* [Christian Peacekeepers promote Pallywood in Hebron.](http://proisraelbaybloggers.blogspot.com/2015/01/christian-peacekeepers-promotes.html)
+
+* [Welcome to Pallywood; Tortured Palestinian prisoner edition](http://proisraelbaybloggers.blogspot.com/2014/11/welcome-to-pallywood-tortured.html)
+
+* [Welcome to Pallywood: Manufacturing a war crime](http://proisraelbaybloggers.blogspot.com/2014/08/welcome-to-pallywood-manufacturing-war.html)
+
+* [Dam. Who would fall for such an obviously staged photo?](http://proisraelbaybloggers.blogspot.com/2015/02/dam-who-would-fall-for-such-obviously.html)
+
+* [Disabled Palestinian child exploited by anti-Israel activists](http://proisraelbaybloggers.blogspot.com/2014/09/disabled-palestinian-child-exploited-by.html)
+
+* [More Pallywood from the Middle East Monitor](http://proisraelbaybloggers.blogspot.com/2014/05/more-pallywood-from-middle-east-monitor.html)
+
+* [IDF patrol attacked from Gaza](http://proisraelbaybloggers.blogspot.com/2013/10/idf-patrol-attacked-from-gaza.html)
+
+
+##[Thomas Wictor](http://www.thomaswictor.com/)
+
+* [Thomas Wictor's ‘PALLYWOOD’ Archive](http://www.thomaswictor.com/category/pallywood/)
+
+* [Israel didn’t kill 500 Palestinian children](http://www.thomaswictor.com/israel-didnt-kill-500-palestinian-children/)
+
+* [Will people ever stop lying about Israel?](http://www.thomaswictor.com/will-people-ever-stop-lying-about-israel/)
+
+* [Two Pallywood duds in one day!](http://www.thomaswictor.com/two-pallywood-duds/)
+
+* [Pallywood made by non-Palestinians](http://www.thomaswictor.com/pallywood-made-by-non-palestinians/)
+
+* [A fake atrocity video from Gaza](http://www.thomaswictor.com/fake-atrocity-video-from-gaza/)
