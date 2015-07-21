@@ -1,0 +1,32 @@
+---
+layout: post
+title: "Dealing with the Iran Deal"
+---
+
+Now that the West has finally capitulated to Iran and agreed to it's nuclearization through this historically bad deal those of us seeking to actually prevent an Iranian nuclear bomb have been debating the proper way to counter the deal.
+
+Many are now focusing their efforts on getting Congress to block the deal. While this is certainly something we should work for, Obama is already not only lobbying hard to ensure there is no veto-proof majority against the deal, but has had the deal approved by the UN Security Council before Congress was given the chance to vote. This means that if Congress exercises its legitimate authority over the ratification of treaties contrary to what the President wants, it will put the United States in violation of a UNSC resolution and the US would be at fault for breaching the deal.
+
+While the JPF doesn't care so much if the US flouts the UN's authority, what is far more concerning is that a rejection by Congress will almost certainly not derail the deal and, at least on its own, will not prevent a nuclear Iran. The Europeans, Russia and China are not going to just sit back and say, "Oh, well Congress says no, let's start over." American sanctions might stay in place (might) but others will not and the unfrozen money delivered to Iran will not be returned. What's more, it will allow Iran to accuse the US of breaching the deal (which it will have done) allowing it to flout the very few restrictions it agreed to. Yes, Iran is going to cheat on the deal, but we'll get to that in a minute.
+
+Additionally, [statements like Presidential Candidate Scott Walker](http://www.usnews.com/news/politics/articles/2015/07/15/gop-candidate-walker-finds-support-for-scrapping-iran-deal) that he would scrap the nuclear deal once in office, while refreshing, are also incredibly problematic. Once the United States signs a deal, it must keep its word. If Iran agreed to a deal that actually stopped its nuclear program and then after the next elections the new Iranian President said he was scrapping the deal, we would justifiably cry foul. There are extreme cases where the President of the United States could justifiably disregard treaties he believes are dangerous to American national security, and this would almost certainly fall into that category, but it is nothing to be flippant about and should be avoided whenever possible. If the world is ever going to trust American leadership again, it must know that the US will keep its word.
+
+So what can be done?
+
+First, call us pessimistic, but with regards to much of the deal, there is very little that can be done at this point. The crippling sanctions that brought Iran to the table cannot be reimposed. The money transferred to Iran (which will be subsequently transferred to Hezbollah, Hamas, Islamic Jihad, the Houthis and Iraqi Shiite militias) can't be taken back. This means the world we live in just got a lot more dangerous and while we don't have to like it, we should first recognize the limitations of our response.
+
+Second, even if it cannot be blocked, it is still important to make it clear that the United States is not united in the false belief that this will prevent a nuclear Iran. Congress may not be able to override Obama's veto but it still needs to make it clear that it is not on board and will be watching every move with incredible scrutiny. Therefore, all efforts should be made to ensure Congress votes no.
+
+Third and most importantly, we must catch Iran as it cheats its way to a bomb. With this deal, Iran could even follow the rules and just wait until the main aspects expire but that isn't Iran's style. Especially after this experience of taking the US to the cleaners, Iran's leaders are only going to get bolder and more aggressive. Our one hope is that this will breed overconfidence and cause Iran to overreach in its capabilities. This makes Iran much more likely to attempt to cheat on the deal, which is exactly what we need to catch them doing. The problem is, [as outlined by Yuval Steinitz](http://www.timesofisrael.com/steinitz-iran-deal-wouldve-been-better-without-inspections-regime/), that this deal actually makes it much harder to catch Iran with its hand in the cookie jar:
+
+>Worse yet, before the deal, Western or Israeli intelligence documenting illicit nuclear activity by Iran “might serve as a smoking gun,” Steinitz said. “But after the agreement, the Iranians will come to the world powers [if confronted with evidence of violations and say], ‘You have to go through the procedure, you can’t just make claims.’”
+
+This is why the US needs to push for inspections as soon as possible of suspected nuclear work at military sites. Since Iran has a month to sterilize any site of illicit materials and actions means it's unlikely those inspections will ever find anything. This means that we must find proof of Iranian cheating beforehand and then show the world that Iran is abusing the verification process and breaching the deal. However, given that [a "top Iranian Aide" has said Iran will not agree with inspections of its military sites](http://www.timesofisrael.com/liveblog_entry/top-iranian-aide-no-military-site-inspections/) the US might not even need to prove that Iran is using such sites illegally. All it will have to do is show that Iran is preventing the inspections it agreed to, breaching the deal and allowing the US to pull out while blaming Iran. Proof that Iran is preventing inspections would also put an potential Israeli strike in a more favorable light.
+
+But even in this "best case scenario" Iran will already have been emboldened and enriched with hundreds of billions of dollars and terror groups the world over will get major boosts in funding and weaponry. Ideally, President Obama would immediately push for inspections of military sites to test Iranian compliance, however given how invested he is in the deal, it is unlikely he will push the envelope and risk it collapsing.
+
+If the next Commander-in-Chief really wants to end the disastrous Iran Deal and work towards something more comprehensive that will actually prevent a nuclear Iran and end Iran's massive support of terrorism, this is the best and most realistic approach available.
+
+Let's pray that in the time it takes to carry this out game changing amounts of money and weaponry aren't transferred to Iranian terror agents.
+
+____
