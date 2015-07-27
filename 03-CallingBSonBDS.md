@@ -26,3 +26,4 @@ Below you will find a constantly growing list of articles not only debunking the
 * [Genocide Libel]({% post_url 2015-06-11-Genocide-Libel %})
 * [Why "Apartheid"]({% post_url 2015-06-22-Why-Apartheid %})
 * [Ms. Hill, About Your Miseducation...]({% post_url 2015-05-05-Ms-Hill-About-Your-Miseducation %})
+* [Apartheid Law vs. Israeli Law]({% post_url 2015-07-27-Apartheid-Law-vs-Israeli-Law %})
