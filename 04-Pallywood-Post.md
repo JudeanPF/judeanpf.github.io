@@ -7,10 +7,65 @@ permalink: "PallywoodPost.html"
 
 Welcome to the Pallywood Post! This section is dedicated to exposing the "art" of Palestinian media manipulation.
 
+![Welcome to Pallywood](http://i.imgur.com/Di72Wx7.jpg)
+
 We are currently compiling a list of all the best articles from numerous pro-Israel blogs, so they can all be easily accessed from a single place. Submissions are greatly appreciated and can be sent to us on Twitter ([@JudeanPF](https://twitter.com/JudeanPF)).
 
-As we progress, we will add quick reference images clearly showing how some of the most viral anti-Israel images that have been manipulated.
+Many thanks to [@aurora933](https://twitter.com/aurorab933) for helping compile our first batch of quick reference Pallywood images:
 
+**Gaza is a huge prison in ruins:**
+
+![Gaza1](http://i.imgur.com/jBHybPx.jpg)
+![Gaza2](http://i.imgur.com/it3iO49.jpg)
+![Gaza3](http://i.imgur.com/t9qajoh.jpg)
+
+**Gaza is starving**
+
+![Gaza food](http://i.imgur.com/Gknywjw.jpg)
+
+**Gaza has no electricity**
+
+![Gaza electric1](https://i.imgur.com/ETSjv1S.jpg)
+
+![Gaza electric2](https://i.imgur.com/E1HHSOZ.jpg)
+
+**Gaza has no water**
+
+![Gaza water1](https://i.imgur.com/2G0Jdkj.jpg)
+
+![Gaza water2](https://i.imgur.com/clUARwN.jpg)
+
+**Casualties of other wars said to be Palestinian**
+
+![Fake war1](http://i.imgur.com/NicAJEC.jpg)
+
+![Fake war2](http://i.imgur.com/4hV6oaJ.jpg)
+
+![Fake war2](http://i.imgur.com/Spj1Xpt.jpg)
+
+![Fake war3](http://i.imgur.com/KmUtx9Q.jpg)
+
+![Fake war4](http://i.imgur.com/eNTgSwY.jpg)
+
+![Fake war5](http://i.imgur.com/bC7vZte.jpg)
+
+![Fake war6](http://i.imgur.com/UwmM8Zk.jpg)
+
+![Fake war7](http://i.imgur.com/1oAUAQ8.jpg)
+
+**Outright fake images**
+
+![Fake1](http://i.imgur.com/f5QXLTf.jpg)
+
+**Fake civilians**
+
+![Civilians1](http://i.imgur.com/Lb0qmZ3.jpg)
+
+**Hamas firing from civilian areas**
+
+![Rocket1](http://i.imgur.com/XDw9Eq3.jpg)
+
+#Pallywood Sources:
 
 ##[Elder of Ziyon](http://elderofziyon.blogspot.com/):
 
