@@ -53,6 +53,8 @@ Many thanks to [@aurora933](https://twitter.com/aurorab933) for helping compile 
 
 ![Fake war7](http://i.imgur.com/1oAUAQ8.jpg)
 
+(Translation of bottom tweet: "Israel, like a genocidal that says it's an advanced democracy but the truth is you're doing very well. Seems like Syria." Of course it "seems" like Syria, because it *IS* Syria!)
+
 **Outright fake images**
 
 ![Fake1](http://i.imgur.com/f5QXLTf.jpg)
@@ -60,6 +62,8 @@ Many thanks to [@aurora933](https://twitter.com/aurorab933) for helping compile 
 **Fake civilians**
 
 ![Civilians1](http://i.imgur.com/Lb0qmZ3.jpg)
+
+(Translation: "A Palestinian minor was killed by the Israeli military for throwing stones at a car." That "minor" doesn't look young or like a civilian, does he?)
 
 **Hamas firing from civilian areas**
 
