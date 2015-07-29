@@ -55,6 +55,13 @@ Many thanks to [@aurora933](https://twitter.com/aurorab933) for helping compile 
 
 (Translation of bottom tweet: "Israel, like a genocidal that says it's an advanced democracy but the truth is you're doing very well. Seems like Syria." Of course it "seems" like Syria, because it *IS* Syria!)
 
+![Fake war8](http://i.imgur.com/l1DIQnA.jpg)
+
+![Fake war9](http://i.imgur.com/rW7g359.jpg)
+
+![Fake war10](http://i.imgur.com/f9N6V9I.jpg)
+
+
 **Outright fake images**
 
 ![Fake1](http://i.imgur.com/f5QXLTf.jpg)
