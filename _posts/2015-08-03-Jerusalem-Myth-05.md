@@ -17,4 +17,6 @@ This fact was clearly visible earlier this year when Mohammed Said Ismail Musall
 
 Arabs can and do live in any area of Jerusalem. Not only has there never been a law restricting where Arabs can settle but it is expressly illegal to prevent someone from moving somewhere based on their religion or ethnicity.
 
+
+###Read more Myths [here](http://judeanpf.com/mythsofjerusalem.html)
 ___
