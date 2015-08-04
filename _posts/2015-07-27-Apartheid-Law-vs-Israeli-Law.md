@@ -17,7 +17,7 @@ What's more, if there is are entities that support any of these laws, it is the 
 **[Immorality Amendment Act](https://en.wikipedia.org/wiki/Immorality_Act), Act No 21 of 1950; amended in 1957 (Act 23)** - Prohibited adultery, attempted adultery or related immoral acts (extra-marital sex) between white and black people.
 
 ####Israel
-**|[Basic Law: Human Dignity and Liberty](http://www.mfa.gov.il/MFA/MFA-Archive/1992/Pages/Basic%20Law-%20Human%20Dignity%20and%20Liberty-.aspx)** - All citizens are equal before the law. In regards to universal concepts of human dignity and liberty, religious and ethnic groups are not referenced at all, only people. There are no laws governing sexual activity within or without the bounds of marriage between consenting adults.
+**[Basic Law: Human Dignity and Liberty](http://www.mfa.gov.il/MFA/MFA-Archive/1992/Pages/Basic%20Law-%20Human%20Dignity%20and%20Liberty-.aspx)** - All citizens are equal before the law. In regards to universal concepts of human dignity and liberty, religious and ethnic groups are not referenced at all, only people. There are no laws governing sexual activity within or without the bounds of marriage between consenting adults.
 
 ![Mixed Transport](https://i.imgur.com/i5lGqDX.jpg)
 
@@ -71,7 +71,7 @@ ___
 
 ####Israel
 
-**[Collective Agreements Law - 1957* and *the Settlement of Labour Disputes Law - 1957](http://www.ilo.org/ifpdial/information-resources/national-labour-law-profiles/WCMS_158902/lang--en/index.htm)** (among others) - The right to strike by all workers, regardless of religion or ethnicity, is enshrined in law. General strikes by the Arab sector in Israel have occurred many times in the past as acts of protest.
+**[Collective Agreements Law - 1957 and the Settlement of Labour Disputes Law - 1957](http://www.ilo.org/ifpdial/information-resources/national-labour-law-profiles/WCMS_158902/lang--en/index.htm)** (among others)** - The right to strike by all workers, regardless of religion or ethnicity, is enshrined in law. General strikes by the Arab sector in Israel have occurred many times in the past as acts of protest.
 
 ![Strike](https://i.imgur.com/i3UVozS.jpg)
 
@@ -267,7 +267,7 @@ ____
 
 ####South Africa
 
-**[Bantu Education Act, Act No 47 of 1953*](https://en.wikipedia.org/wiki/Bantu_Education_Act,_1953)** - Established a Black Education Department in the Department of Native Affairs which would compile a curriculum that suited the "nature and requirements of the black people". The author of the legislation, Dr Hendrik Verwoerd (then Minister of Native Affairs, later Prime Minister), stated that **its aim was to prevent Africans receiving an education that would lead them to aspire to positions they wouldn't be allowed to hold in society**. Instead Africans were to receive an education designed to provide them with skills to serve their own people in the homelands or to work in labouring jobs under whites.|asdfasdfasd|
+**[Bantu Education Act, Act No 47 of 1953](https://en.wikipedia.org/wiki/Bantu_Education_Act,_1953)** - Established a Black Education Department in the Department of Native Affairs which would compile a curriculum that suited the "nature and requirements of the black people". The author of the legislation, Dr Hendrik Verwoerd (then Minister of Native Affairs, later Prime Minister), stated that **its aim was to prevent Africans receiving an education that would lead them to aspire to positions they wouldn't be allowed to hold in society**. Instead Africans were to receive an education designed to provide them with skills to serve their own people in the homelands or to work in labouring jobs under whites.
 
 ####Israel
 
