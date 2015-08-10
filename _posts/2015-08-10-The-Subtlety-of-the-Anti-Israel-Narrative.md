@@ -1,3 +1,4 @@
+---
 layout: post
 title: "The Subtlety of the Anti-Israel Narrative"
 ---
