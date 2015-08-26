@@ -133,7 +133,7 @@ ___
 
 ####Israel
 
-There are no areas designated as only for Arabs (or Jews only) in Israel and no "financial, commercial or industrial schemes" specifically for those non-existent areas. The Industrial Parks or Zones in Israel and Judea and Samaria make no distinction between Jew or Arab or Israeli or Palestinian.
+There are no areas designated as only for Arabs (or Jews only) in Israel and no "financial, commercial or industrial schemes" specifically for those non-existent areas. The Industrial Parks or Zones in Israel and Judea and Samaria make no distinction between Jew or Arab or Israeli or Palestinian (Israel and Egypt have 15 "Qualifying Industrial Zones" of a similar nature which have run without incident or protest).
 
 ___
 
