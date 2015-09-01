@@ -17,6 +17,15 @@ But what happens when the "greatest defender of the Palestinians" supports such 
 
 Not only is there no denunciation or name-calling, this project is instead praised (as it should) for helping to grow a stagnant Palestinian economy.  No one cares when it is Turkey establishing these zones, or when Israel works with Egypt or Jordan to establish joint [Qualifying Industrial Zones](https://en.wikipedia.org/wiki/Qualifying_Industrial_Zone).
 
+
+We can already hear the BDSers retorting: But the Turkish Industrial Zones are in no way similar to those in the Bantustans of South Africa!
+
+True. But the same is true of the ones established by Israel in Judea and Samaria and yet this never stopped the BDS-holes from using them to make the same accusations.
+
+They will the respond: But there have been complaints and condemnations about the way the QIZs in Jordan and Egypt are run!
+
+Also true. However, when condemning certain practices in these zones, critics have never resorted to false accusations of apartheid or used infractions in there to demonize and delegitimize the entire state they are located in. This is only the case when such zones are located in Israel or the territories.
+
 The only time BDS activists care about these actions are when the only party involved is the Jewish State. Can someone please remind us what that term is for singling out one group for condemnation while ignoring or praising others for doing exactly the same thing just because that first group is Jewish?
 
 ____
