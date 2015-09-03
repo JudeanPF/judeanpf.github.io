@@ -18,6 +18,11 @@ Many thanks to [@aurora933](https://twitter.com/aurorab933) for helping compile 
 ![Gaza1](http://i.imgur.com/jBHybPx.jpg)
 ![Gaza2](http://i.imgur.com/it3iO49.jpg)
 ![Gaza3](http://i.imgur.com/t9qajoh.jpg)
+![Gaza4](http://i.imgur.com/LfHP4wS.jpg)
+![Gaza5](http://i.imgur.com/APrStPS.jpg)
+![Gaza6](http://i.imgur.com/TNLitJV.jpg)
+![Gaza7](http://i.imgur.com/0qlGxzo.jpg)
+![Gaza8](http://i.imgur.com/vE5wTwm.jpg)
 
 **Gaza is starving**
 
@@ -40,6 +45,8 @@ Many thanks to [@aurora933](https://twitter.com/aurorab933) for helping compile 
 ![Fake war1](http://i.imgur.com/NicAJEC.jpg)
 
 ![Fake war2](http://i.imgur.com/4hV6oaJ.jpg)
+
+![Fake war 2a](http://i.imgur.com/aFB1NVK.jpg)
 
 ![Fake war2](http://i.imgur.com/Spj1Xpt.jpg)
 
