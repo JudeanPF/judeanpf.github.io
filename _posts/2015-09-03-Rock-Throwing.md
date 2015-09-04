@@ -33,7 +33,7 @@ Israel cannot make this change for the Palestinians, but that does not mean it h
 
 The only way to stem this tide is to go to the source of this child abuse: the parents.
 
-![Wanted Poster](http://i.imgur.com/uuBC7xM.jpg)
+![Wanted Poster](http://i.imgur.com/LQjd9RB.jpg)
 
 
 ____
