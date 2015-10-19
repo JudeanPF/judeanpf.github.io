@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "UNESCO and the Palestinians"
+title: "The Palestinian Hijacking of @UNESCO"
 ---
 
 Tomorrow, [UNESCO will vote on a Palestinian proposal](http://www.ynetnews.com/articles/0,7340,L-4712189,00.html) to recognize the Temple Mount as a Muslim World Heritage site.
