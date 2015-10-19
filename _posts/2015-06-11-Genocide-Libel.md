@@ -61,9 +61,9 @@ That isn't a genocide, that's a population explosion!
 
 The numbers don't help the BDS-holes when looking at Gaza either.
 
-In 1967, when Israel wrested Gaza from Egyptian occupation, **356,261** [Arabs were living there](http://www.levyinstitute.org/pubs/1967_census/vol_1_intro_tab_b.pdf).
+In 1967, when Israel wrested Gaza from Egyptian occupation, [**356,261** Arabs were living there](http://www.levyinstitute.org/pubs/1967_census/vol_1_intro_tab_b.pdf).
 
-By 2005, when Israel unilaterally ended its occupation of the territory, there were **1,376,289** Arabs there](http://israelipalestinian.procon.org/view.resource.php?resourceID=000636#chart5).
+By 2005, when Israel unilaterally ended its occupation of the territory, there were [**1,376,289** Arabs there](http://israelipalestinian.procon.org/view.resource.php?resourceID=000636#chart5).
 
 **That is an increase of 1,020,028 people or 286% growth!**
 
