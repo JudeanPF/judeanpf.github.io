@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "The Palestinian Hijacking of @UNESCO"
+title: "UNESCO and the Palestinians (updated)"
 ---
 
 Tomorrow, [UNESCO will vote on a Palestinian proposal](http://www.ynetnews.com/articles/0,7340,L-4712189,00.html) to recognize the Temple Mount as a Muslim World Heritage site.
@@ -28,5 +28,18 @@ Fifth, the Palestinians complain of "Israel’s attempts to break the status quo
 Sixth, this proposal again calls for an end to the "attacks on al-Aqsa" by "right-wing extremists." Who cares if no such attacks have ever happened, Abbas has been pushing this lie for too long to stop now. He already repeated it at the UNGA in front of heads of state from around the world, so why not repeat it to UNESCO. Who cares that this lie was what prompted the [Manasra boys to try to stab and kill Jews](http://www.timesofisrael.com/terrorist-teen-executed-by-israel-confesses-to-attack/)? Clearly not the Palestinians.
 
 Given the Arab-Muslim majority, there is every indication that this resolution will pass... along with any remaining doubts about UNESCO's impartiality.
+
+
+###Updates
+
+After a bit of outrage from UNESCO's Director-General and some Western countries, the resolution [dropped its call to reclassify the Western Wall as a Muslim site](http://www.timesofisrael.com/unesco-condemns-israeli-aggression-on-temple-mount/). Also removed were references to Jerusalem as the "occupied capital of Palestine" and condemnations of calls for Israeli citizens to bear arms to defend themselves against Palestinian terror. The other major outrages remain without any mention in the press of course.
+
+However, the new resolution did recognize Rachel's Tomb in Bethlehem and the Tomb of the Patriarchs in Hebron as Muslim holy sites (something that wasn't widely reported as journalists focused solely on the Western Wall drama). Recognizing the Tomb of the Patriarchs as holy to Muslims *in addition* to Jews would be fine and appropriate but that is not what happened. There is no recognition of Jewish attachment to this, the Second Holiest site in Judaism. But given that the Temple Mount (the First Holiest) isn't recognized either, this should be no surprise. (UNESCO did recognize both claims in 2010, but did not upload that in this new resolution).
+
+The [Elder of Ziyon](http://elderofziyon.blogspot.com/2015/10/plo-drops-bid-to-call-western-wall.html) has a great post regarding Rachel's Tomb, which was not treated as a Muslim holy site until very recently (they started in the '90s and only changed to the new name in official textbooks in 2001) and is claimed to be a mosque honoring someone without any connection to the biblical Rachel.
+
+Given that this new claim has no historical basis, was not a firmly held belief among Muslims and only arose when Israel asserted its claim over the site, it is not appropriate to treat this site as the others and recognize both claims as though they are equal. An ancient and long sustained claim and presence is superior to a new, politically motivated claim that has no historical basis.
+
+But, given that the entire Palestinian national project is based upon the exact opposite being true, we shouldn't be surprised that they continue to invent new claims. Sadly, the world continues to uncritically accept them.
 
 ___
