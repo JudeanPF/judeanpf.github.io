@@ -11,7 +11,7 @@ Sure, getting the media to promote lies like "attacks on the Temple Mount" or fr
 
 In order to win over the West, the Palestinians have simply decided to redefine the English language in a way that casts them in a positive light. That is why when talking to Palestinians and their supporters one cannot just consult an *Concise Oxford English Dictionary*, rather one must consult the *Concise Palestinian Dictionary* to understand their true goals.
 
-Below, you'll find many important words with their Western definition and its Palestinian counterpart. You'll notice the common factor among Palestinian definitions is that they are almost invariably the exact opposite of the true meaning.
+Below, you'll find many important words with their Western definition and its Palestinian counterpart. You'll notice the common factor among Palestinian definitions is that they are almost invariably the exact opposite of the true meaning. (If you have a word you think should be added, please tweet us at [@JudeanPF](https://twitter.com/JudeanPF)).
 
 ![Palestinian Dictionary](http://i.imgur.com/fpIB1bP.jpg)
 
