@@ -37,7 +37,7 @@ A form of government in which an ethnic minority dominates over the ethnic major
 
 2- Any action - even if it is exactly the same as what Israel is accused of doing - is no longer Apartheid when done by Palestinians or other Arabs.
 
->The fact that marriages in Israel are only conducted via religious ceremonies thus preventing intermarriages (though those performed abroad are recognized) *is* apartheid, but when the Palestinian Authority adopts the exact same arrangement, it is not.
+>The fact that marriages in Israel are only conducted via religious ceremonies thus preventing intermarriages (though those performed abroad are recognized) *is* apartheid, but when the Palestinian Authority adopts the exact same arrangement, it is not. Though Palestinian law punishes those who sell land to Jews with [death or life in prison with hard labor](http://www.jpost.com/Arab-Israeli-Conflict/Abbas-adds-hard-labor-to-punishment-for-Palestinians-who-sell-land-to-hostile-countries-379350) since this isn't Israeli law, it cannot be considered an apartheid law.
 
 ___
 
