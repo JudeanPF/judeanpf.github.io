@@ -425,6 +425,26 @@ Noun.
 
 ___
 
+##War Crime
+
+[wawr krahym]
+
+Noun.
+
+###Western Definition
+
+1- A violation of the International Laws of War
+
+2- Normally used in reference to the most egregious violations (genocide, massacring civilians, maltreatment of prisoners...) but also includes other, "minor" offenses including wearing the uniform of the enemy or mistreatment of the dead.
+
+###Palestinian Definition
+
+1- Cannot include any actions taken by Palestinian individuals or organizations.
+
+2- Any military or police act take by Israel regardless of intent, action, result or actual legality.
+
+___
+
 ##Zionism
 
 [**zahy**-*uh*-niz-*uh* m] 
