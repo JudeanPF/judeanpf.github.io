@@ -148,7 +148,7 @@ Didn't think so.
 
 ####Settlements
 
-Arabs can and do move to Jewish towns and neighborhoods in Judea and Samaria. The most common Israeli destination for Israeli Arabs are the allegedly "Jewish-only" neighborhoods of eastern Jerusalem that the world keeps calling settlements. However, this fact is constantly ignored by the media.
+[Arabs can and do move to Jewish towns and neighborhoods in Judea and Samaria](http://judeanpf.com/2015/08/03/Jerusalem-Myth-05/). The most common Israeli destination for Israeli Arabs are the allegedly "Jewish-only" neighborhoods of eastern Jerusalem that the world keeps calling settlements. However, this fact is constantly ignored by the media.
 
 In fact, just this year Mohammed Said Ismail Musallam, an Israeli Arab, [was killed by ISIS after traveling to its territory to join the group](http://elderofziyon.blogspot.com/2015/03/did-isis-slaughter-illegal-israeli.html#.VW4eoY7BzGc). ISIS accused him of being an Israeli spy and the reports about his execution all highlight the fact that he was Israeli, Arab, and lived in the Neve Yaakov neighborhood of eastern Jerusalem. This neighborhood has a Jewish majority but many Arab residents as well. Had Musallam been a Jew, the media would have been quick to point out that he was an "illegal settler," but since he was Arab, this was completely ignored.
 
@@ -156,7 +156,7 @@ In fact, just this year Mohammed Said Ismail Musallam, an Israeli Arab, [was kil
     
 It is honestly surprising that Erakat even mentions the term "Separation Barrier" at all before throwing around the libelous epithet "Apartheid Wall." Israel uses the term "Security Fence," for two reasons. First, it was built as a security measure during the height of the Second Intifada and [was successful in stopping attacks](https://web.archive.org/web/20040110054951/http://securityfence.mfa.gov.il/mfm/web/main/missionhome.asp?MissionID=45187): from 2000 to July 2003 there were 73 suicide bombings originating from Judea and Samaria, but after that initial phase of fence building, the following three years only yielded 12 successful attacks. [Islamic Jihad and Hamas leaders](http://www.terrorism-info.org.il/data/pdf/PDF_08_089_2.pdf)) have openly complained that the Security Fence makes it difficult for them to conduct suicide bombing operations.
 
-Second, while the media likes to show eye-grabbing images of the concrete wall sections of the barrier, these parts account for just 5-10% of the whole. Hardly the defining characteristic.
+Second, while the media likes to show eye-grabbing images of the concrete wall sections of the barrier, these parts account for just 4% of the whole (6% if it's ever finished). Hardly the defining characteristic.
 
 If you build a castle at the beach and then use a seashell as a door, is that a sandcastle or a seashell-castle? 
 
@@ -170,7 +170,7 @@ So while Erakat would like her readers to believe that the imaginary "Jewish-onl
 
 >Israeli apartheid characterizes Israeli policies both within Israel proper as well as the OPT: in both contexts a racial hierarchy is firmly established with the primary aim of maintaining a Jewish majority within nation-state borders.
 
-The reason why Erakat says this is because the main characteristic of apartheid is the way in which a racial hierarchy is firmly established by law and enforced through violence. Unfortunately for her, as we have shown, there are no racial laws in Israel. Jews and non-Jews live in the same towns, eat in the same restaurants, go to the same hospitals and schools, vote in the same elections, serve in the same governments and more. Whereas every aspect of life in Apartheid South Africa was governed by laws designed to prevent the mixing of races and maintain domination by the minority ethnic group over the majority, nothing remotely similar exists in Israel.
+The reason why Erakat says this is because the main characteristic of apartheid is the way in which a racial hierarchy is firmly established by law and enforced through violence. Unfortunately for her, as we have shown, [there are no racial laws in Israel](http://judeanpf.com/2015/07/27/Apartheid-Law-vs-Israeli-Law/). Jews and non-Jews live in the same towns, eat in the same restaurants, go to the same hospitals and schools, vote in the same elections, serve in the same governments and more. Whereas every aspect of life in Apartheid South Africa was governed by laws designed to prevent the mixing of races and maintain domination by the minority ethnic group over the majority, nothing remotely similar exists in Israel.
 
 Since no such race laws exist in Israel, Erakat resorts to lies, distortions and omissions in order to force an analogy that just does not fit.
 
