@@ -21,8 +21,13 @@ In order to properly combat this threat, pro-Israel students need to know what t
 
 Below you will find a constantly growing list of articles not only debunking the lies contained in the BDS Handbook, but important information in the fight against BDS and specific actions that can be taken to counter BDS.
 
+###Handbook Debunked:
+
 * [BDS Handbook: Forward]({% post_url 2015-06-09-BDS-Handbook-Forward %})
 * [BDS Handbook: Israeli Apartheid]({% post_url 2015-06-10-Israeli-Apartheid %})
+* [BDS Handbook: Divestment Strategy]({% post_url 2015-11-11-Strategy-of-Divestment %})
+
+###Other Calling BS on BDS Posts:
 * [Genocide Libel]({% post_url 2015-06-11-Genocide-Libel %})
 * [Why "Apartheid"]({% post_url 2015-06-22-Why-Apartheid %})
 * [Ms. Hill, About Your Miseducation...]({% post_url 2015-05-05-Ms-Hill-About-Your-Miseducation %})
