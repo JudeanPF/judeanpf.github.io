@@ -25,7 +25,7 @@ Below you will find a constantly growing list of articles not only debunking the
 
 * [BDS Handbook: Forward]({% post_url 2015-06-09-BDS-Handbook-Forward %})
 * [BDS Handbook: Israeli Apartheid]({% post_url 2015-06-10-Israeli-Apartheid %})
-* [BDS Handbook: Divestment Strategy]({% post_url 2015-11-11-Strategy-of-Divestment %})
+* [BDS Handbook: Divestment Strategy]({% post_url 2015-11-11-Strategy-Of-Divestment %})
 
 ###Other Calling BS on BDS Posts:
 * [Genocide Libel]({% post_url 2015-06-11-Genocide-Libel %})
