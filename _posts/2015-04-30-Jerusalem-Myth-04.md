@@ -9,7 +9,7 @@ Part Four of our multipart series on [**The Many Myths of Jerusalem**](http://ju
 
 Followers of this series will remember that ["East Jerusalem" is a completely modern construct](http://judeanpf.com/2015/03/20/Jerusalem-Myth-02/) with no basis in history. However, regardless of this fact, many of you may still be thinking: *ok, it might be a new idea, but Jerusalem is holy to the Muslims, so it would have to be the capital of a future Palestinian state.*
 
-![Palestinian Rejectionism](https://i.imgur.com/yH5d1Xf.jpg)
+![Palestinian Rejectionism](https://pbs.twimg.com/media/CUM9DgfWUAAnwT7.jpg)
 
 Leaving aside the fact that the Palestinians have consistently rejected every offer of statehood, consistent [refusal to recognize Israel's right to exist as a Jewish State](http://judeanpf.com/2015/04/14/Recognizing-the-Jewish-State/), and given Abbas's current strategy of engaging in lawfare instead negotiations and paying terrorists instead stopping them, let us make one thing incredibly clear:
 
