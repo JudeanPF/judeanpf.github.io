@@ -9,7 +9,7 @@ The Judean People's Front is proud to report that the latest BDS attempt to sile
 ![Jesse Arm](https://i.imgur.com/h3rRyb7.jpg)
 
 
-On November 19 - the same day that Palestinian terror attacks killed 2 Israelis, 1 Palestinian and an [American Jew](http://www.israellycool.com/2015/11/24/watch-moment-of-silence-for-ezra-schwartz-zl/) - Students Allied for Freedom and Equality (SAFE), an anti-Israel group at the University of Michigan, erected a mock checkpoint on campus. While walking to class sophomore and Central Student Government representative, Jesse Arm, challenged the protesters.
+On November 19 - the same day that Palestinian terror attacks killed 2 Israelis, 1 Palestinian and an [American Jew](http://www.israellycool.com/2015/11/24/watch-moment-of-silence-for-ezra-schwartz-zl/) - Students Allied for Freedom and Equality (SAFE), an anti-Israel group at the University of Michigan, erected a mock checkpoint on campus. While walking to class sophomore and Central Student Government representative, Jesse Arm, challeneged the protesters.
 
 
 ![Wall](https://i.imgur.com/qqcFZCc.jpg)
@@ -21,7 +21,7 @@ After this brief encounter, the Central Student Government, at the urging of SAF
 
 After watching the video, Mr. Arm was unanimously vindicated as it showed he did not engage in any form of intimidation, hate speech or aggression and despite the fact that it happened on the same day as a fellow American Jewish student was murdered by Palestinian jihadists, Mr. Arm conducted himself respectfully though forcefully.
 
-The response from the Ethics Committee was unanimous, unambiguous and precedent-setting given that this was the first time a ethics probe had ever been initiated at the University. 
+The response from the Ethics Committee was unanimous, unambiguous and precedent-setting given that this was the first time an ethics probe had ever been initiated at the University. 
 
 
 ###Below are the highlights from the investigative report (all emphasis added):
