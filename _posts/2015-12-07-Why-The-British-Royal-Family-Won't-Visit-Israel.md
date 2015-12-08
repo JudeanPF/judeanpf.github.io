@@ -78,4 +78,6 @@ And where was the Queen's very first visit abroad all the way back in 1947?
 
 [Racist British South Africa](http://www.royal.gov.uk/MonarchUK/RoyalVisits/Overseasvisits.aspx), of course. Good thing she won't come to Israel, it might ruin her image!
 
+Join the conversation on [IsraellyCool](http://www.israellycool.com/2015/12/08/why-the-british-royal-family-wont-visit-israel/).
+
 ____
