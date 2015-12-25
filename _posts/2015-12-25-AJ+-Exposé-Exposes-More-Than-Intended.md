@@ -10,19 +10,19 @@ AJ+, Al Jazeera's hip younger sister digital network, recently released a short 
 
 Dena Takruri, who has made a career out of demonizing Israel and mythologizing Palestinian victimhood, reprises her role in her interview with Balata "refugee" Ahmad Khader. He appears to be in his early twenties and is well dressed in a button down over a sweater and jeans (which is also my go to outfit) and he is by no means starving.
 
-![Khader and Takruri](http://i.imgur.com/IiXJND8)
+![Khader and Takruri](http://i.imgur.com/IiXJND8.jpg)
 
 Perhaps unwittingly, Ms. Takruri begins by highlighting the most contradictory aspect of all Palestinian "refugee" camps: their permanence.
 
 >"The crazy thing is **you would think that a refugee camp would be a temporary type of thing,** but as you're seeing, these generations are growing up here born and raised. So his family was exiled, they became refugees from Jaffa in 1948. They came here in 1950 and they've been here ever since. **So it's become a permanent thing.**"
 
-![Armani Refugee](http://i.imgur.com/6I7w9zs)
+![Armani Refugee](http://i.imgur.com/6I7w9zs.jpg)
 
 (Another permanent refugee wearing Armani)
 
 This camp, which is essentially a permanent town in the heart of Palestinian controlled territory, has been running for roughly 65 years. Mr. Khader and his father (it seems) were both born there and yet they are still called refugees. His grandfather moved 53 kilometers from Jaffa to this area just outside of Nablus. This is roughly the same distance between Washington DC and Baltimore, not exactly a long journey. By any definition other than the one cynically used by UNRWA, Mr. Khader and his family are not refugees. They were not forced from their homes, they have citizenship in the Palestinian Authority and even his grandfather, who remained within the boundaries of Mandatory Palestine, would not be considered a refugee. But here is his grandson giving a tour of his pre-packaged misery for gullible Westerners to consume online.
 
-![UN](http://i.imgur.com/C3pY2hg)
+![UN](http://i.imgur.com/C3pY2hg.jpg)
 
 Ms. Takruri simply says the Khaders were "exiled from Jaffa," but this is not the case at all. Mr. Khader later in the interview says, "They [his grandparents] told me that they were hoping to come back. They just turned off the stove and left." Not that they were forced out of their home or that soldiers loaded them on a truck and drove them out of the city. They took some belongings and left.
 
@@ -66,7 +66,9 @@ Takruri then asks about Mr. Khader's grandfather and he says, "I'm sure you neve
 
 Of course no one expects this to happen and that would certainly be a horrible thing. However, none of this happened to the elder Khader at all! Ahmad admits that his grandfather was not kicked out of his home but rather left on his own. He also freely admits that he is not forced to live in the refugee camp and can leave any time he wants but chooses to stay of his own volition. The only part of this bogus story that Khader doesn't tell is that it wasn't Israel that built Balata but rather Jordan! While all the Arabs who stayed in Israel were given citizenship and never put in any camps, Jordan forced these "refugees" into camps despite offering them citizenship!
 
-![Martyrs](http://i.imgur.com/zgWVeAe)
+![Martyrs](http://i.imgur.com/zgWVeAe.jpg)
+
+(The Khader family home covered in "martyr" posters)
 
 This farce of a video ends with Khader saying, "We're certain that we'll return and God willing, we will return."
 
