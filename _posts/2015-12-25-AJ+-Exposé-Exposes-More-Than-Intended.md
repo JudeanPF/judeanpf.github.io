@@ -79,4 +79,6 @@ Just as the militia leaders of 1948 were happy to see Jaffa burn if it meant als
 
 Poor kid.
 
+###Join the conversation at [IsraellyCool](http://www.israellycool.com/2015/12/25/aj-expose-exposes-more-than-intended/).
+
 ____
