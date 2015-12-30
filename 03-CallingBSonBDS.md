@@ -17,6 +17,10 @@ BDS "successes" on university campuses in the West are not isolated incidents, b
 
 While it is from a group called the "US Campaign to End the Israeli Occupation" the occupation they are talking about is the one that began in 1948 (i.e. all of Israel) and the Handbook itself is based almost entirely on painting Israel as an apartheid state.
 
+<div class="video-container">
+<iframe src="https://www.youtube.com/embed/KdEAMa6CT5I" frameborder="0" width="560" height="315"></iframe>
+</div>
+
 In order to properly combat this threat, pro-Israel students need to know what they are up against and how to respond to each and every lie, distortion and misrepresentation this Handbook is teaching. To that end, the Judean People's Front has decided to take this apart page by page and lie by lie.
 
 Below you will find a constantly growing list of articles not only debunking the lies contained in the BDS Handbook, but important information in the fight against BDS and specific actions that can be taken to counter BDS.
