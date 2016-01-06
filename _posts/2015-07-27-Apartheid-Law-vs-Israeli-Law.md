@@ -11,6 +11,8 @@ As we examine both sets of laws, it is clear that not only is Israel not an apar
 
 What's more, if there is are entities that support any of these laws, it is the Palestinian Authority and the Islamic Resistance Movement's Gaza Strip!
 
+![Apartheid Poster](http://i.imgur.com/RU7vUG9.jpg)
+
 ##Apartheid Laws that are Explicitly Illegal in Israel
 
 ####South Africa
