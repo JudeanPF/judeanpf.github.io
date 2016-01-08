@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "World Hypocrisy On Stage In Wake of Stabbing in Paris"
+title: "World Hypocrisy On Display In Wake of Stabbing in Paris"
 ---
 
 Today, the one year anniversary of the Charlie Hebdo and Hyper Cache attacks, a Jihadist armed with a butcher's knife and fake suicide vest (according to initial reports), was shot dead while shouting "Allahu Akabar" and attempting to kill French police officers in Paris. After he was neutralized, the police found two pieces of paper on him, one with an image of the ISIS flag and another with a handwritten note in Arabic claiming responsibility for the attack.
