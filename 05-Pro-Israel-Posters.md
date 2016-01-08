@@ -27,7 +27,7 @@ The fight against Israel haters both in the real world and online is not an easy
 
 ![BDS Handbook](http://i.imgur.com/Wb3jkCB.jpg)
 
-![Fayyad Sbaihat](http://i.imgur.com/xEv5qAW.png)
+![Fayyad Sbaihat](http://i.imgur.com/fSW5dkY.jpg)
 
 (From [The Strategy of Divestment](http://judeanpf.com/2015/11/11/Strategy-Of-Divestment/))
 
