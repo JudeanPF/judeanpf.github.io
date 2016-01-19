@@ -25,4 +25,6 @@ This is of course nothing new for the Palestinian leadership, but at least the P
 
 ![Two-Faced](http://i.imgur.com/o3E7Gcy.jpg)
 
+##Join the conversation on [Israellycool](http://www.israellycool.com/2016/01/19/did-abbas-actually-condemn-dafna-meirs-murder/).
+
 ___
