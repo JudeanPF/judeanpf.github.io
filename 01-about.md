@@ -10,7 +10,7 @@ I asked for a media empire, but the Elders of Zion only gave me a [Twitter accou
 We here at the Judean People's Front aim not only to rid our country of the hated Roman Occupation, but to fight against all demonization and delegitimization of Israel through facts and humor. 
 
 <div class="video-container">
-         <iframe src="https://www.youtube.com/embed/gb_qHP7VaZE" frameborder="0" width="560" height="315"></iframe>
+         <iframe src="https://www.youtube.com/embed/vPyiUePXuGQ" frameborder="0" width="560" height="315"></iframe>
 </div>
 
 >*I'm not a Roman mum. I'm a Kike, a Yid, a Heebie, a Hook-nose. I'm Kosher mum. I'm a Red Sea Pedestrian and proud of it!*
