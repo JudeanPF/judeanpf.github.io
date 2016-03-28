@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 'Calling BS on DBS - Why "Apartheid"'
+title: 'Calling BS on BDS - Why "Apartheid"'
 ---
 
 The biggest weapon in the arsenal of BDS is the "Israel = Apartheid" charge. This has completely overtaken the "anti-occupation" trope that previously characterized much of the "pro-Palestinian" movement.
