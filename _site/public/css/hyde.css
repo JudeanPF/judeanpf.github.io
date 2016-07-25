@@ -111,6 +111,11 @@ a.sidebar-nav-item:focus {
     right:  1rem;
     bottom: 1rem;
     left:   1rem;
+
+    /*Allow scrolling in sidebar*/
+    overflow: scroll;
+    height: 100%;
+    padding-top: 45px;
   }
 }
 
