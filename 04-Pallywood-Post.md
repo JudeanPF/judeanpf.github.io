@@ -72,6 +72,7 @@ Many thanks to [@aurora933](https://twitter.com/aurorab933) for helping compile 
 **Outright fake images**
 
 ![Fake1](http://i.imgur.com/f5QXLTf.jpg)
+![Fake2](https://i.imgur.com/qnlrbvU.jpg)
 
 **Fake civilians**
 
