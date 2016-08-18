@@ -43,7 +43,7 @@ Additionally, there were situations like the one that arose in Haifa. Abandoned 
 The result was generally that Arab towns that didn't resist were allowed to stay, while those that served as bases of attack were often expelled. However there were cases where some villages were forced out without resisting due to their strategic positions on supply roads and there were also cases of towns that, once subdued, were allowed to stay despite their belligerent past. Because of this policy, over one hundred thousand Arabs remained in Israel at the end of the war and their descendants make up Israel's 1.5 million-strong Israeli-Arab minority.
 
 
-![Refugee movements](https://upload.wikimedia.org/wikipedia/commons/d/db/Map6_RefugeesRoutes2.gif)
+![Refugee movements](https://i.imgur.com/J1StRUJ.gif)
 
 If you examine the above map, you'll see that not only are half of the refugee destinations within the boundaries of Mandatory Palestine, but Morris notes **two thirds of the "refugees" only moved from one area of "Palestine" to another**, which goes against the standard definition of a refugee.
 
