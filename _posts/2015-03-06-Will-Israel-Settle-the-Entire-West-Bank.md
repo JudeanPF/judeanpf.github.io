@@ -19,7 +19,7 @@ Instead of going to the Israeli government or the settler groups themselves, whi
 
 [According to Yehezkel Lein](http://www.thirdworldtraveler.com/Israel/Israeli_Settlements.html), a researcher at B'Tselem, the built-up areas of the settlements take up... **1.7%!**
 
-<center><IMG SRC="http://www.mappery.com/maps/Jewish-Settlements-in-West-Bank-Map.jpg" ALT="some text" WIDTH=300 HEIGHT=500></center>
+<center><IMG SRC="https://i.imgur.com/qkADCT9.jpg" ALT="some text" WIDTH=300 HEIGHT=500></center>
 
 Now you're probably thinking, that can't be right! They must take up more land than that or else they wouldn't make headlines like they do. Well, let's now go to the Palestinians and see what they have to say.
 
